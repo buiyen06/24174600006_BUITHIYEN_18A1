@@ -1,2 +1,1 @@
-# 24174600006_BUITHIYEN_18A1
-nôp bài tập 
+ đây là file đã sửa
